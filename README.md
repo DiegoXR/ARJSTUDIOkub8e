@@ -1,1 +1,0 @@
-# ARJSTUDIOkub8e
